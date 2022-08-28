@@ -2,4 +2,6 @@ Estuve participando durante 4 años (2019-2022) en Seré Ingeniera [https://sere
 
 Actualmente estudiando Ingeniería informatica, con planes de estudiar IA y/o ciberseguridad. 
 
-Also, soy miebro técnico de IoT en GDSC Granada y maker. 
+Miebro técnico de IoT en GDSC Granada y maker. 
+
+2022/2023->GDSC Leader
