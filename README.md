@@ -1,4 +1,4 @@
-Estuve participando durante 4 años (2019-2022) en Seré Ingeniera [https://sereingeniera.ugr.es]. 
+Estuve participando durante 4 años (2019-2022) en Seré Ingeniera [https://sereingeniera.ugr.es]. Actualmente soy profesora en Seré Ingeniera.
 
 Actualmente estudiando Ingeniería informatica.
 
